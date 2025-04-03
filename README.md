@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ABOBUSES
 - 👀 I’m interested in minecraft(betaserver)
 - 😊 I’m looking to collaborate on betacraft 
-- 📫 How to reach me discord(bogoris_aboba)
+- 📫 How to reach me discord(bogoris_aboba) and SweetLava(https://discord.com/channels/1343978059010801789/1352260138030989372)
 - ⚡ Fun fact: ABOBA
 
 <!---
